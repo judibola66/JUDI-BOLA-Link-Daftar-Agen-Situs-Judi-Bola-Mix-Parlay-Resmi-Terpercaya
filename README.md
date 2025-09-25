@@ -1,4 +1,4 @@
-# 🎯 JUDI-BOLA - Link Daftar Agen Situs Judi Bola Mix Parlay Resmi Terpercaya  
+# 🎯 JUDI BOLA - Link Daftar Agen Situs Judi Bola Mix Parlay Resmi Terpercaya  
 
 ![Football Banner](https://img.freepik.com/premium-photo/soccer-ball-green-stadium-background-generative-ai_98402-21805.jpg)  
 
